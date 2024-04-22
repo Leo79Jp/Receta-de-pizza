@@ -31,4 +31,4 @@ Llevar a un horno fuerte unos 6 minutos. Esto es muy importante para que la masa
 Agregar una cucharada abundante de salsa de tomate y llevar al horno 2 minutos más.
 Listo! Puedes dejar que se enfríe y llevarla al congelador para usarla en otro momento o ponerle el topping que quieras y hacerla en el momento! Hace un tiempo hice un post con las 10 mejores pizzas, así que si quieren ideas pueden buscarlo e inspirarse!
 
-hola que tal
+hola que tal OK
