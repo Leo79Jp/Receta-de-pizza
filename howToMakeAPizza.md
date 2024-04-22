@@ -1,3 +1,4 @@
+
 Como hacer masa para pizza casera
 
 5 consejos para hacer masa para pizza perfecta
@@ -29,3 +30,4 @@ Estirar la masa hasta lograr un círculo. Poner la masa en una fuente para pizza
 Llevar a un horno fuerte unos 6 minutos. Esto es muy importante para que la masa para pizza quede bien cocida (principalmente la parte entre los ingredientes y la masa, si salteamos este punto quedará húmeda y cruda).
 Agregar una cucharada abundante de salsa de tomate y llevar al horno 2 minutos más.
 Listo! Puedes dejar que se enfríe y llevarla al congelador para usarla en otro momento o ponerle el topping que quieras y hacerla en el momento! Hace un tiempo hice un post con las 10 mejores pizzas, así que si quieren ideas pueden buscarlo e inspirarse!
+
