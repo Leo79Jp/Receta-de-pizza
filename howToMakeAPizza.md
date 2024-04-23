@@ -17,12 +17,12 @@ El gran tip es que no te apures en este paso. Si sentís que se te pega la masa 
 # Ingredientes
 ## Para 2 pizzas de 8 porciones
 
-* 1/2 kilo de harina 000
-* 25 gr de pan de levadura fresco
-* 1/2 cucharada de sal
-* 4 cdas de aceite de oliva
-* 1 cda de azúcar
-* 1 taza de agua tibia
+1/2 kilo de harina 000
+25 gr de pan de levadura fresco
+1/2 cucharada de sal
+4 cdas de aceite de oliva
+1 cda de azúcar
+1 taza de agua tibia
 
 # Preparación
 1. En un bol o taza **colocar la levadura y media taza de agua tibia**, agregar la cucharada de azúcar. Mezclar bien hasta que se formen burbujitas. Tapar con un nylon y dejar levar mas o menos 10 minutos.
