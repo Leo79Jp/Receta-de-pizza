@@ -32,4 +32,4 @@ Agregar una cucharada abundante de salsa de tomate y llevar al horno 2 minutos m
 Listo! Puedes dejar que se enfríe y llevarla al congelador para usarla en otro momento o ponerle el topping que quieras y hacerla en el momento! Hace un tiempo hice un post con las 10 mejores pizzas, así que si quieren ideas pueden buscarlo e inspirarse!
 
 
-Hice otro Cambio
+
