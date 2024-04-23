@@ -20,7 +20,7 @@ El gran tip es que no te apures en este paso. Si sentís que se te pega la masa 
 * 1/2 kilo de harina 000
 * 25 gr de pan de levadura fresco
 * 1/2 cucharada de sal
-4 cdas de aceite de oliva
+* 4 cdas de aceite de oliva
 1 cda de azúcar
 1 taza de agua tibia
 
