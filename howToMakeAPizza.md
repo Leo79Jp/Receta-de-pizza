@@ -35,3 +35,5 @@ El gran tip es que no te apures en este paso. Si sentís que se te pega la masa 
 Listo! Puedes dejar que se enfríe y llevarla al congelador para usarla en otro momento o ponerle el topping que quieras y hacerla en el momento! Hace un tiempo hice un post con las 10 mejores pizzas, así que si quieren ideas pueden buscarlo e inspirarse!
 
 generando conficto
+
+## Hasta luego
